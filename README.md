@@ -1,2 +1,1 @@
-# hello-world
-tah-dah
+Be hungry! Be craving!
